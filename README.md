@@ -2,7 +2,7 @@ MAJOR PROJECT ON
 Work [Or] Hire
 
 
-Bachelor of Computer Application
+Bachelor of Computer Science
 By
 Debarghaya Bhaumik
 Under the guidance of
